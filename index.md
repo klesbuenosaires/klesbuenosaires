@@ -34,4 +34,4 @@ Realizamos entregas en la zona de Villa del Parque, Villa Devoto, Villa Pueyrred
 
 ________________________________________________________________  
 
-(c) Kles Buenos Aires, 2020. 
+(c) Kles Buenos Aires, 2020. [Conocé a nuestro team](/team.md)
