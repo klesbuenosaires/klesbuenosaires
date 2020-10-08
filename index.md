@@ -18,8 +18,8 @@ Realizamos entregas en la zona de Villa del Parque, Villa Devoto, Villa Pueyrred
 
 # Precios
 (A partir de Diciembre)
-- Remera de mangas cortas, cualquier color, calidad _premium_: *~~$ 1000~~* **$ 500** /***U$S 4,00***
-- Remera de mangas cortas, cualquier color, calidad _standard_: *~~$ 800~~* **$ 400** / ***U$S 3,00***  
+- Remera de mangas cortas, cualquier color, calidad _premium_: *~~$ 1000~~* **$ 500** | ***U$S 4,00***
+- Remera de mangas cortas, cualquier color, calidad _standard_: *~~$ 800~~* **$ 400** | ***U$S 3,00***  
 
 **10% OFF adicional a partir de la segunda unidad**  
 
