@@ -3,7 +3,6 @@
 ## ¡Hola!  
 Bienvenido a la página oficial de KLES BUENOS AIRES.  
 Kles ofrece remeras del color que más te guste, al talle que vos quieras.  
-Operamos en la zona de Devoto.  
 El GRAND OPENING se llevará a cabo el 1 de Diciembre. Estate atento, porque durante Diciembre haremos flash sale - hasta 50% de descuento. Estamos ubicados en el Barrio de Agronomía, en la Ciudad de Buenos Aires.
 
 # Productos y envíos
@@ -18,8 +17,8 @@ Realizamos entregas en la zona de Villa del Parque, Villa Devoto, Villa Pueyrred
 
 # Precios
 (A partir de Diciembre)
-- Remera de mangas cortas, cualquier color, calidad _premium_: *~~$ 1000~~* **$ 500** | ***U$S 4,00***
-- Remera de mangas cortas, cualquier color, calidad _standard_: *~~$ 900~~* **$ 450** | ***U$S 3,50***  
+- Remera de mangas cortas, cualquier color, calidad _premium_: *~~$ 1200~~* **$ 600** | ***U$S 4,00***
+- Remera de mangas cortas, cualquier color, calidad _standard_: *~~$ 1000~~* **$ 500** | ***U$S 3,00***  
 
 **10% OFF adicional a partir de la segunda unidad**  
 
