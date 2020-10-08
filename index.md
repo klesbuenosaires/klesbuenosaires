@@ -16,10 +16,13 @@ Los envíos los realizamos, [si hay disponibilidad de stock](https://forms.gle/D
 Realizamos entregas en la zona de Villa del Parque, Villa Devoto, Villa Pueyrredón y Agronomía, libre de cargo. Si no vivís en esa zona, consultá si podemos realizar el envío y cuál sería el costo. El lugar de entrega puede ser el domicilio del Cliente, un domicilio que él especifique (por ejemplo, un amigo, un familiar o como regalo) o en otro espacio que pida.
 
 # Precios
-(A partir de Diciembre)
- Remera de mangas cortas, cualquier color, calidad _premium_ | *~~$ 1200~~* **$ 600** | ***U$S 4,00***  
- 
- Remera de mangas cortas, cualquier color, calidad _standard_ | *~~$ 1000~~* **$ 500** | ***U$S 3,00***  
+(A partir de Diciembre)  
+
+| Precio   |   $ PESOS    |  U$S  |
+|----------|:-------------:|------:|
+| Remera de mangas cortas, cualquier color, calidad _premium_ | *~~$ 1200~~* **$ 600** | ***U$S 4,00***  |
+| Remera de mangas cortas, cualquier color, calidad _standard_ |  *~~$ 1000~~* **$ 500** | ***U$S 3,00***  |
+
 
 **10% OFF adicional a partir de la segunda unidad**  
 
