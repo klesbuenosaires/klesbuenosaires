@@ -31,4 +31,8 @@ Realizamos entregas en la zona de Villa del Parque, Villa Devoto, Villa Pueyrred
 
 - _Casilla de correo electrónico:_ klesbuenosaires@gmail.com
 
-- _Instagram:_ [@klesbuenosaires](http://www.instagram.com/klesbuenosaires)
+- _Instagram:_ [@klesbuenosaires](http://www.instagram.com/klesbuenosaires)  
+
+________________________________________________________________  
+
+(c) Kles Buenos Aires, 2020. 
