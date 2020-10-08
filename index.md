@@ -9,7 +9,7 @@ El GRAND OPENING se llevará a cabo el 1 de Diciembre. Estate atento, porque dur
 
 Vendemos por unidad remeras de mangas cortas, hechas con la tela de la mejor calidad. Las remeras que vendemos son sin estampar, y ofrecemos blancas, negras y de colores y de distintos talles (S, M, L). No dudes en consultarnos por la disponibilidad de la(s) remera(s) que quieras. Por ahora, en el corto plazo, sólo pensamos ofrecer remeras ya que es lo que permite nuestra estructura de costos y administrativa. Sin embargo, tenemos planes de aumentar nuestra oferta durante 2021, y comenzar a ofrecer más indumentaria básica e incluso ofrecer servicios de sublimado de remeras y vender remeras estampadas.
 
-Los envíos que realizamos los hacemos, si hay disponibilidad de stock del producto seleccionado, dentro de las 48 horas de realizado el pedido. El horario de entrega será a convenir entre el Cliente y Kles. 
+Los envíos los realizamos, [si hay disponibilidad de stock](https://forms.gle/2r35fXgtU3bSFWC46) del producto seleccionado, dentro de las 48 horas de realizado el pedido. El horario de entrega será a convenir entre el Cliente y Kles. 
 
 **Área de cobertura**  
 
@@ -30,7 +30,7 @@ Realizamos entregas en la zona de Villa del Parque, Villa Devoto, Villa Pueyrred
 
 - _Casilla de correo electrónico:_ klesbuenosaires@gmail.com
 
-- _Instagram:_ [@klesbuenosaires](http://www.instagram.com/klesbuenosaires)  
+- _Instagram:_ [@klesbuenosaires](http://www.instagram.com/klesbuenosaires)    
 
 ________________________________________________________________  
 
