@@ -8,6 +8,6 @@ El GRAND OPENING se llevará a cabo el 1. de Diciembre. Estate atento, porque du
 
 # Contacto  
 
-- _Casilla de correo electrónico:_ ivifedorus@gmail.com
+- _Casilla de correo electrónico:_ klesbuenosaires@gmail.com
 
 - _Instagram:_ @klesbuenosaires
